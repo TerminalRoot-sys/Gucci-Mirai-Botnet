@@ -1,2 +1,2 @@
 # Gucci-Mirai-Botnet
-Gucci Mirai Botnet Leak
+Gucci Mirai Botnet Leak // just clying my space on disk.
